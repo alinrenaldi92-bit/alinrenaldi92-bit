@@ -1,8 +1,8 @@
-## 👋 Hi, I’m Alin Renaldi
+## 👋 Hi, I’m
 
 I’m a **SEO Specialist & Digital Marketing Writer** based in Phnom Penh, Cambodia. I focus on content strategy and backlink building to help websites gain visibility and rank better on Google.
 
-🔍 Saat ini saya aktif menulis panduan SEO lengkap di [cheringtonhr.com](https://cheringtonhr.com), membagikan wawasan seputar:
+🔍 Saat ini saya aktif menulis panduan SEO lengkap di (https://www.lalookskin.com/venusblissmax.html), membagikan wawasan seputar:
 - 🔑 Riset kata kunci
 - ✍️ Konten SEO-friendly
 - 🔗 Strategi backlink manual
