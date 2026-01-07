@@ -1,4 +1,4 @@
-## 👋 Hi, I’m
+## 👋 Hi
 
 I’m a **SEO Specialist & Digital Marketing Writer** based in Phnom Penh, Cambodia. I focus on content strategy and backlink building to help websites gain visibility and rank better on Google.
 
@@ -12,9 +12,9 @@ I’m a **SEO Specialist & Digital Marketing Writer** based in Phnom Penh, Cambo
 ---
 
 ### 📬 Contact & Links
-- 🌐 [Gravatar](https://gravatar.com/alinrenaldi92)
-- 🦋 [Bluesky](https://bsky.app/profile/alinrenaldi92.bsky.social)
-- 🌍 [Panduan SEO Lengkap](https://cheringtonhr.com)
+- 🌐 [sites.google](https://sites.google.com/view/digitalcontenthub/))
+- 🦋 [gitbook.io](https://slot777-5.gitbook.io/))
+- 🌍 [pinterest](https://www.pinterest.com/slot777jp/))
 
 ---
 
