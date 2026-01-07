@@ -12,9 +12,9 @@ I’m a **SEO Specialist & Digital Marketing Writer** based in Phnom Penh, Cambo
 ---
 
 ### 📬 Contact & Links
-- 🌐 [sites.google](https://sites.google.com/view/digitalcontenthub/))
-- 🦋 [gitbook.io](https://slot777-5.gitbook.io/))
-- 🌍 [pinterest](https://www.pinterest.com/slot777jp/))
+- 🌐 [sites.google](https://sites.google.com/view/digitalcontenthub/)
+- 🦋 [gitbook.io](https://slot777-5.gitbook.io/)
+- 🌍 [pinterest](https://www.pinterest.com/slot777jp/)
 
 ---
 
